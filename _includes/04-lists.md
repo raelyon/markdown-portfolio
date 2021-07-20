@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Summertime
+2. Growing vegetables
+3. Flower gardens
