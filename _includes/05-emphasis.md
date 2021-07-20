@@ -1,5 +1,5 @@
 **Welcome to the Summertime Site**
-*Together, we will find joy*
+_Together, we will find joy_
 
 Below, list things that bring you joy
 - sunshine 🌞
